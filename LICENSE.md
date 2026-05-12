@@ -1,4 +1,4 @@
-#  
+#  custom welcome to bloxburg Scripts offers the most advanced welcome to bloxburg Script, with private server access and unlimited stamina. Perfect for
 
 
 
